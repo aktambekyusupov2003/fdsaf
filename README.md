@@ -1,1 +1,1 @@
-men readme fayl yaratdim
+men uddaladim
